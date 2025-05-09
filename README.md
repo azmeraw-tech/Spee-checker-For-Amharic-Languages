@@ -1,0 +1,1 @@
+# Spee-checker-For-Amharic-Languages
